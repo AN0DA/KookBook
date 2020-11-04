@@ -1,6 +1,6 @@
 # Curry z batatem i kalafiorem
 
-## ingedients
+## ingredients
 
 Curry:
 
